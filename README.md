@@ -7,3 +7,6 @@ Semestre 2025-2
 **Cédula:** 1007505716 
 
 **Programa académico:** Ingeniería de Industrial
+
+
+**Link para el video de la Entrega 2:** https://youtu.be/CWWBsZy_F_s
