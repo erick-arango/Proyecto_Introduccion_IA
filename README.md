@@ -12,4 +12,4 @@ Semestre 2025-2
 **Link para el video de la Entrega 2:** https://youtu.be/CWWBsZy_F_s
 
 
-**Link para el video de la Entrega 2:** https://youtu.be/KtNjRsLa9EQ
+**Link para el video de la Entrega 2:** https://www.youtube.com/watch?v=aFvpE_tDkSk
